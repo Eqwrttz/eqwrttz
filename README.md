@@ -1,5 +1,4 @@
-![image](https://github.com/user-attachments/assets/cd23c6b0-dd88-40d8-978d-655fa8e0311b)
-
+https://preview.redd.it/so-in-terms-of-power-stolas-is-above-any-overlord-but-is-v0-u6ky3lyg3sfc1.jpeg?auto=webp&s=7cb53b9d46a35684f5fab5b88eeea3eab6eeeabb
 <!--
 **Eqwrttz/eqwrttz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
