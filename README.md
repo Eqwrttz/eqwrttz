@@ -1,4 +1,5 @@
-## Hi there 👋
+## ![image](https://github.com/user-attachments/assets/9f2d500b-6135-48b7-9f96-82da1d99acb8)
+
 
 <!--
 **Eqwrttz/eqwrttz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
