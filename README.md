@@ -1,5 +1,4 @@
-## ![image](https://github.com/user-attachments/assets/9f2d500b-6135-48b7-9f96-82da1d99acb8)
-https://purplesheepmylove.straw.page/
+![image](https://github.com/user-attachments/assets/cd23c6b0-dd88-40d8-978d-655fa8e0311b)
 
 <!--
 **Eqwrttz/eqwrttz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
