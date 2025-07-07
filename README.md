@@ -1,4 +1,4 @@
-## <p align="center">![](https://komarev.com/ghpvc/?username=Eqwrttz&label=★+crowd!!+&color=9F2B68)
+## <p align="center">![](https://komarev.com/ghpvc/?username=Eqwrttz&label=crowd!!+&color=37374d)
 
 ![image](https://github.com/user-attachments/assets/119445a5-7b71-4008-a58c-9ae418427063)
 
