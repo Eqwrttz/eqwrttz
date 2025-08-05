@@ -1,7 +1,7 @@
 ## <p align="center">![](https://komarev.com/ghpvc/?username=Eqwrttz&label=Creepers💔+&color=37374d)
 
 ![image](https://github.com/user-attachments/assets/119445a5-7b71-4008-a58c-9ae418427063)
-That xvoisen person is not me!! omg i swear you blame me on things i did NOT do </3
+## <p align="center">That xvoisen person is not me!! omg i swear you blame me on things i did NOT do </3
 <!--
 **Eqwrttz/eqwrttz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
